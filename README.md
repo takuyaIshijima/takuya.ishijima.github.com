@@ -1,1 +1,0 @@
-# takuya.ishijima.github.com
